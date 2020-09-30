@@ -1,0 +1,2 @@
+# Kurnia-riski
+Keindahan pekanbaru
